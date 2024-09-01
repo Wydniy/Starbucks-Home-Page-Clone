@@ -1,0 +1,1 @@
+Hello, this is Janiyah and on September 1, 2024, i completed this project where i cloned/copied starbucks website page. Feel Free to check it out and let me know how you think. Enjoy!!
